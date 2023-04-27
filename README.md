@@ -1,0 +1,1 @@
+Each person has the freedom to direct one’s own life and be able to do things for oneself when possible. Each person can choose what to do and when to do it; carers should not dictate to clients what to do. contact@joshua
